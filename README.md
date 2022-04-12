@@ -1,2 +1,2 @@
 # potato
-potato chips
+I love potato chips
